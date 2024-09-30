@@ -1,4 +1,4 @@
-git clone git://https://www.futurepedia.io/tool/stammer?utm_source=stammer_embed### 
+git clone git://🤖https://openai.com/index/learning-to-reason-with-llms/🤖git clone git://https://www.futurepedia.io/tool/stammer?utm_source=stammer_embed### 
 🕳️🕳️🕳️✨✨✨💦💦💦💚💙💚👣👣👣🤞🤞🤞🧙🧝🧙👼🫅🥷🧌🧑‍🎄🦸🕴️💏👩‍❤️‍💋‍👨👨‍❤️‍💋‍👨👩‍❤️‍💋‍👩💑👩‍❤️‍👨👨‍❤️‍👨👩‍❤️‍👩🫄🤱🧑‍🍼🌷🌷🌷🌀🌀🌀⚡⚡⚡❄️❄️❄️⛄☃️⛄✨💫✨🌍🌎🌏🕳️🕳️🕳️🪐🪐🪐☄️☄️☄️🌠🌠🌠🌌🌌🌌🐲🐲🐲🐉🐉🐉🦖🦖🦖🦕🦕🦕🐸🐸🐸🦏🦏🦏🐘🐘🐘🐒🐒🐒🐦🐦‍⬛🐦🪶🪽🪶🐓🐔🐣🐤🐥🦅🦉🦜🕊️🦤🦢🦆🪿🦩🦚🦃🐧🦭🦈🐬🐋🐳🐟🐠🐡🦐🦞🦀🦑🐙🪼🦪🪸🦂🕷️🕸️🐚🐌🐜🦗🪲🦟🪳🪰🐝🐞🐞🐞🍥🍫🍾🍾🍾🍼🍼🍼🛑🛑🛑🧭🧭🧭🛢️🛢️🛢️⚓⚓⚓🛟🛟🛟🏎️🛸⛵⛵⛵🏟️🏦🏟️🏙️🌆🌇🌃🌉🌁🛤️🛣️🌐💺🌐🧳🧳🧳🎯🎯🎯⛳⛳⛳📸📸📸🎸🎸🎸🎟️🎟️🎟️🎭🎭🎭🎙️🎙️🎙️🎤🎤🎤🎧🎧🎧📻📻📻📻🎛️🎛️🎛️🎚️🎚️🎚️💵💵💵💳💳💳💳💡💡💡🛍️🧮🛍️🧸🧸🧸👑👑👑💊💊💊📡📡📡🔗🔗🔗⚙️⚙️⚙️⛓️⛓️⛓️📎📎📎🖇️🖇️🖇️🖊️🖊️🖊️🖋️🖋️🖋️✒️✒️✒️🧲🧲🧲🧬🧬🧬🪜🪜🪜🗄️🗄️🗄️📌📌📌📬📥📬📮🔮🔮🔮🔮🤖#sudo su 
 
 - 👋 Hi, I’m @Codecommander-bot™️®️©️ a.k.a. DOUGLAS SHANE DAVIS✨©️✨
